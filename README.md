@@ -8,7 +8,7 @@ I love clean code, good UI, and learning new tech 🚀
  I’m looking to collaborate on web development projects  
  I’m looking for help with scaling & performance optimization  
  Ask me about HTML, CSS, JavaScript & websites  
- How to reach me: *Coming Soon*  
+ How to reach me: Mail-Spiderfuryy@gmail.com 
 
- Portfolio: *Coming Soon*  
+ Portfolio: https://avinashportfolio12.lovable.app  
  Open to freelance & collaboration opportunities
